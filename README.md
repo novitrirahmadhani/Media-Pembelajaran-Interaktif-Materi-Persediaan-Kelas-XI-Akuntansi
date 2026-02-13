@@ -1,1 +1,1 @@
-# Media-Pembelajaran-Interaktif-Materi-Persediaan-Kelas-XI-Akuntansi
+# Media-Pembelajaran-Interaktif-Materi-Persediaan
